@@ -1,4 +1,4 @@
-# Hi there 👋 I'm Sayon Ghosh!
+# Hi there 👋 I'm Sayan Ghosh!
 
 ## About Me
 Resourceful forest spatial scientist with 7+ years of experience in forest management, carbon mitigation, and climate change initiatives. Adept at developing scientifically rigorous frameworks for carbon removal pathways...
