@@ -10,6 +10,9 @@ Resourceful forest spatial scientist with 7+ years of experience in forest manag
 - Research: Forest Economics, Growth & Yield Modeling, Econometrics, Spatial Statistics...
 
 ## Experience
+### Pachama (March 2024 – Present)
+Forest Carbon Modeling Lead, Applied Sciences
+
 ### South Pole (June 2023 – February 2024)
 Senior Specialist, Technical, NBS, Climate Projects – USA & Canada
 - Led carbon offset initiatives in compliance with international and regional climate policies...
